@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PEGR980625HSRRMM06
+PEGR980625HSRRMM06
